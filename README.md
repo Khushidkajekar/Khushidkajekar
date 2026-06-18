@@ -1,3 +1,4 @@
+<img width="1536" height="1024" alt="ChatGPT Image Jun 18, 2026, 11_11_18 AM" src="https://github.com/user-attachments/assets/16b9a42e-a099-4c8e-8946-e3a266688a77" />
 <div align="center">
 
 # Hi 👋, I'm Khushi D Kajekar
